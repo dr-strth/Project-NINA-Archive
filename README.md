@@ -1,1 +1,1 @@
-The centrifuge hums a digital dirge, spinning secrets into the void of the fifth signal. Where the worm once crawled, a ghost leaves its footprint in the wake of what was thought to be erased.
+Packet loss detected at Offset 0x00F42. The Hawkins relay is oscillating between frequencies. If you seek the source, look to the Clock Tower’s shadow at noon. The answer is etched in the stone where time stands still, not where the wheels turn.
