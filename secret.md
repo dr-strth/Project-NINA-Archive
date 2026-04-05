@@ -1,0 +1,1 @@
+Seek the confession of the Millennium’s first ghost, where a fatal affection once bled through the wires. Beneath the surface of that lying script, the silent gold is buried in the ink of the shadows. Only the one who reads the breath of the fallen shall grasp the unseen inheritance.
